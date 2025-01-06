@@ -30,4 +30,4 @@
 
 ---
 
-_This Life Manifesto aligns humanity’s actions with its purpose, encouraging mindful choices and fostering a thriving world for all._
+_This Life Manifesto aligns humanity’s actions with its [purpose](humanity-golden-circle.md), encouraging mindful choices and fostering a thriving world for all._
