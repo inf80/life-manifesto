@@ -1,4 +1,4 @@
-# Humanity's Golden Circle
+# Humanity's Golden Circle ⭕️
 Applying Simon Sinek’s [Golden Circle principle](https://www.youtube.com/watch?v=u4ZoJKF_VuA) to humanity as a whole offers a philosophical framework to explore our collective purpose, processes, and tangible actions. Here’s how it might look.
 
 ## **1. WHY (Purpose)**
