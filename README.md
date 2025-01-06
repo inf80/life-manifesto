@@ -1,4 +1,4 @@
-# Life Manifestox 🌍
+# Life Manifesto 🌍
 
 **We are uncovering better ways to live in harmony with ourselves, others, and the planet by embracing shared purpose, empathy, and growth. Through this pursuit, we have come to value:**
 
